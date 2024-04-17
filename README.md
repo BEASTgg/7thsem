@@ -1,4 +1,4 @@
-# Welcome to :seven: th Sem!
+# Welcome to :seven:th Sem!
 
 ## ⭐ this :seven: times?
 ### Disclaimer: The handler(s) of this repository will not be responsible for any wrong assignments and/or any other discrepencies caused on your end.
