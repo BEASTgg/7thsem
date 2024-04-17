@@ -30,4 +30,4 @@
 
 
 
-<img src="https://github.com/PixMusicaX/PiXMusicaX/blob/main/Okabe%20Rintaro%20Typing%20on%20the%20computer%20ASMR.gif">
+<img src="https://github.com/BEASTgg/gifs/blob/main/Okabe%20Rintaro%20Typing%20on%20the%20computer%20ASMR.gif">
