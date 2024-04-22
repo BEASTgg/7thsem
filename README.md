@@ -7,15 +7,15 @@
 
 ## [CSE(CORE)]():
 
-### Competitive Coding Assignments:
 
 
 
-### [Compiler Design](https://drive.google.com/file/d/1ofnt_xslwujyfRRg2jTv0JlD66j5Ebdx/view?usp=sharing):
 
 
 
-### Computer Networks:
+
+
+
 
 
 
@@ -23,11 +23,11 @@
 
 ## [CSE(IOT)]():
 
-### [Compiler Design]():
 
 
 
-### Computer Networks:
+
+
 
 
 
@@ -35,15 +35,15 @@
 
 ## [CSE(AIML)]():
 
-### Competitive Coding Assignments:
 
 
 
-### [Compiler Design]():
 
 
 
-### Computer Network Lab Assignments :
+
+
+
 
 
 
