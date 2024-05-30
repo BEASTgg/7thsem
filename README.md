@@ -78,7 +78,7 @@
 
 ## For Youtube Videos : [Click Here]()
 
-## For Google Drive : [Click Here]()
+## For Google Drive : [Click Here](https://drive.google.com/drive/folders/1vky-RH0mWJPhTn_PQ2WTMBdOWqdz7N60?usp=sharing)
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
