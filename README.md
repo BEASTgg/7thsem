@@ -76,9 +76,9 @@
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-## For Youtube Videos : [Click Here]()
+## For Youtube Videos : [Click Here](https://drive.google.com/file/d/1RStiqq6eV-ZB6NWXL6Ul73MZ9eDl5NL6/view?usp=sharing)
 
-## For Google Drive : [Click Here](https://drive.google.com/drive/folders/1vky-RH0mWJPhTn_PQ2WTMBdOWqdz7N60?usp=sharing)
+## For Google Drive : [Click Here](https://drive.google.com/drive/folders/16yMyB0ZE2i4E8_MQymXkOtu_hWwlySwG?usp=drive_link)
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
