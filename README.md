@@ -72,13 +72,13 @@
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-## Question Papers : [Click Here]()
+## Question Papers : [Click Here](https://drive.google.com/drive/folders/1M070Id1Dup5sBN_d8kFHRUDaIpUW8jQJ?usp=sharing)
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 ## For Youtube Videos : [Click Here](https://drive.google.com/file/d/1RStiqq6eV-ZB6NWXL6Ul73MZ9eDl5NL6/view?usp=sharing)
 
-## For Google Drive : [Click Here](https://drive.google.com/drive/folders/16yMyB0ZE2i4E8_MQymXkOtu_hWwlySwG?usp=drive_link)
+## For Google Drive : [Click Here](https://drive.google.com/drive/folders/16yMyB0ZE2i4E8_MQymXkOtu_hWwlySwG?usp=sharing)
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
